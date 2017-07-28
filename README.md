@@ -1,0 +1,1 @@
+hoje o dia está lindo e frio e eu sou um mendigo .
